@@ -1,0 +1,7 @@
+- 👋 Hi, I’m ibrahim Mohamed --> @im-pharaoh <-- Yes I'm Original Egyptian Pharaoh
+- 👀 I’m interested in Website Develop & Design
+- 🌱 I’m currently learning Astro
+- 💞️ I’m working Freelancer (websites & online stores) 
+- 📫 How to reach me instagram: @pharaoh.im
+- 😄 Pronouns: Bro / Mate / Friend
+- ⚡ Fact: I'm more than you imagine! ;)
