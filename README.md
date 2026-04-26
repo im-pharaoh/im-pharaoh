@@ -4,4 +4,4 @@
 - 💞️ I’m working Freelancer (websites & online stores) 
 - 📫 How to reach me instagram: @pharaoh.im
 - 😄 Pronouns: Bro / Mate / Friend
-- ⚡ Fact: I'm more than you imagine! ;)
+- ⚡ Fact: I can do more than you imagine! ;)
